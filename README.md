@@ -1,4 +1,4 @@
-# InfinityBiz-Review-6-Tools-in-1-Dashboard
+# InfinityBiz Review: 6 Tools in 1 Dashboard!
 
 ![image](https://github.com/user-attachments/assets/dde77145-6c91-4638-a02c-f60066b1d7f7)
 
